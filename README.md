@@ -2,6 +2,7 @@
 - 👀 I’m interested in Tech skills 
 - 🌱 I’m currently learning Data Analysis with DAHEL Consultants 
 - 💞️ I’m looking to collaborate on projects 
+
    How to reach me:tomwuzor@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
